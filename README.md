@@ -130,7 +130,7 @@ Built by a Technical Support Specialist (Tier 2) with 5 years of enterprise expe
 
 📬 Contact
 
-LinkedIn: linkedin.com/in/sava-alexandru
+LinkedIn: https://www.linkedin.com/in/sava-alexandru-060aa220a/
 
 Email: savaa35@gmail.com
 
